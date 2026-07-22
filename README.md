@@ -10,4 +10,4 @@ Ciudad de México, julio 2025.
 
 ## 🎬 Presentación
 
-[⚙️ **Haz clic aquí para ver el video en la página oficial del ICN**](https://www.instagram.com/reels/DOvo9R1CINS/)
+[📱 **Haz clic aquí para ver el video en la página oficial del ICN**](https://www.instagram.com/reels/DOvo9R1CINS/)
