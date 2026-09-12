@@ -5,7 +5,7 @@ Ciudad de México, julio 2025.
 
 ## 👥 Autores
 
-* **José Ángel Godoy Santiago ** 
+* **José Ángel Godoy Santiago** 
 * **Tutor:** José David Vergara
 
 ## 🎬 Presentación
